@@ -65,5 +65,5 @@ o deserunt
 ## Occaecat amet labore
 ___
 
-![alt text](![image](https://user-images.githubusercontent.com/114220415/218516057-608c79f2-91fb-4796-90a0-382f76b43be5.png)
-)
+![alt text](https://tskoli.is/wp-content/uploads/2019/06/skolavorduholt-705x475.jpg)
+
